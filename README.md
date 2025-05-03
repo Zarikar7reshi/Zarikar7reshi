@@ -13,7 +13,7 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-# Hi there, I'm [**Zarikar7reshi**] :wave:
+# Hi there, I'm [**pitoneverde**] :wave:
 - :zap: 
 - :technologist: I enjoy developing anything that comes to mind.
 - :dizzy: I'm still learning things
